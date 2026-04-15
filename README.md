@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GITTEJAS06
 - 👀 I’m interested in Creative things
-- 🌱 I’m currently learning Data Science & Ai
+- 🌱 I’m currently Graduate in Data Science & Ai
 - 💞️ I’m looking to collaborate on professionals 
 - 📫 How to reach me By mail tejasshere888@gmail.com 
 - 😄 Pronouns: Him/He
